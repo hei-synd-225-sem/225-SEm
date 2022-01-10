@@ -12,4 +12,4 @@ P. V.
 R. Landry
 S. V.
 Z. T.
-Z. S.
+Zufferey Samuel
