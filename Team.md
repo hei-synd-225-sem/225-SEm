@@ -8,7 +8,7 @@ Samy
 J. T.
 L. P.
 M. S.
-P. V.
+P. Valérie
 R. Landry
 S. V.
 Z. T.
